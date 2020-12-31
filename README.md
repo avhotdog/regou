@@ -4,9 +4,9 @@
 
 ------------
 
-### 20120年10月12日最新地址
+### 20120年12月31日最新地址
 
-### [https://www.avhotdog.net](https://www.avhotdog.net)  （可直接访问）
+### [https://regouav.com](https://regouav.com)  （可直接访问）
 ------------
 ### 网站预览
 ![热狗首页](https://github.com/avhotdog/avhotdog.net/blob/master/hotdog_index.png?raw=true "热狗首页")
