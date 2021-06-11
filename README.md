@@ -13,7 +13,7 @@
 + https://avhd.online
 + https://avhd1.online
 + https://avhd2.online
-+ http://avhd3.online
++ https://avhd3.online
 
 ------------
 
