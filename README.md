@@ -4,12 +4,19 @@
 
 ------------
 
-### 20120年12月31日最新地址
+### 2021年6月11日最新地址
 
-### [https://regouav.com](https://regouav.com)  （可直接访问）
+### 永久地址：[https://regouav.com](https://regouav.com)  （可直接访问）
+
+### 最新地址：
+
++ https://avhd.online
++ https://avhd1.online
++ https://avhd2.online
++ http://avhd3.online
+
 ------------
+
 ### 网站预览
+
 ![热狗首页](https://github.com/avhotdog/avhotdog.net/blob/master/hotdog_index.png?raw=true "热狗首页")
-
-
-
