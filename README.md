@@ -9,21 +9,16 @@
 ### 永久地址：[https://regouav.com](https://regouav.com)  （可直接访问）
 
 ### 最新地址：
-+ https://avhd1.club
-+ https://avhd2.club
-+ https://avhd3.club
-+ https://avhd4.club
-+ https://avhd5.club
-+ https://avhd6.club
-+ https://avhd7.club
-+ https://avhd8.club
-+ https://avhd9.club
-+ https://avhd10.club
-+ https://avhd.online
-+ https://avhd1.online (被墙)
-+ https://avhd2.online
-+ https://avhd3.online
-+ 
++ https://avhd1.top
++ https://avhd2.top
++ https://avhd3.top
++ https://avhd4.top
++ https://avhd5.top
++ https://avhd6.top
++ https://avhd7.top
++ https://avhd8.top
++ https://avhd9.top
++ https://avhd10.top
 
 ------------
 
