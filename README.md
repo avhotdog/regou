@@ -9,16 +9,11 @@
 ### 永久地址：[https://regouav.com](https://regouav.com)  （可直接访问）
 
 ### 最新地址：
-+ https://avhd1.top
-+ https://avhd2.top
-+ https://avhd3.top
-+ https://avhd4.top
-+ https://avhd5.top
-+ https://avhd6.top
-+ https://avhd7.top
-+ https://avhd8.top
-+ https://avhd9.top
-+ https://avhd10.top
++ https://hdav1.top
++ https://hdav2.top
++ https://hdav3.top
++ https://hdav4.top
++ https://hdav5.top
 
 ------------
 
