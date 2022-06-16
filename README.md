@@ -9,11 +9,14 @@
 ### 永久地址：[https://regouav.com](https://regouav.com)  （可直接访问）
 
 ### 最新地址：
-+ https://hdav1.top
-+ https://hdav2.top
-+ https://hdav3.top
-+ https://hdav4.top
-+ https://hdav5.top
++ https://rgav1.top
++ https://rgav2.top
++ https://rgav3.top
++ https://rgav4.top
++ https://rgav5.top
++ https://rgav6.top
++ https://rgav7.top
++ https://rgav8.top
 
 ------------
 
