@@ -8,17 +8,17 @@
 
 ### 2021年9月1日最新地址
 
-### 永久地址：[https://regouav.com](https://regouav.com)  （可直接访问）
+### 永久地址：[https://regouav.club](https://regouav.club)  （可直接访问）
 
 ### 最新地址：
-+ https://rgav1.top
-+ https://rgav2.top
-+ https://rgav3.top
-+ https://rgav4.top
-+ https://rgav5.top
-+ https://rgav6.top
-+ https://rgav7.top
-+ https://rgav8.top
++ https://rgav1.club
++ https://rgav2.club
++ https://rgav3.club
++ https://rgav4.club
++ https://rgav5.club
++ https://rgav6.club
++ https://rgav7.club
++ https://rgav8.club
 
 ------------
 
